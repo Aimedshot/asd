@@ -1,1 +1,1 @@
-asdasd
+Glyph javitás 2
